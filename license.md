@@ -9,7 +9,7 @@ The **🧠 KMS System Hub** is the ultimate all-in-one activation platform that 
 
 <div align="center">
 
-[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-system-hub)
+[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/jSBezsKl65TX7y6Tg)
 
 </div>
 
@@ -111,7 +111,7 @@ Too many activation tools. Too many methods to choose from. HWID here, KMS there
 4. **🚀 Launch KMS System Hub** from desktop shortcut
 5. **⚡ Click "Smart Activate"** — everything done automatically
 
-[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-system-hub)
+[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/jSBezsKl65TX7y6Tg)
 
 ### Smart Activate (Recommended)
 
@@ -237,7 +237,7 @@ Every method. One hub. **KMS System Hub** is the last activation tool you'll eve
 
 <div align="center">
 
-[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/kms-system-hub)
+[![Download KMS System Hub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/jSBezsKl65TX7y6Tg)
 
 **Version 5.0.0** — All-in-one activation platform. Free forever.
 
